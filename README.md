@@ -1,1 +1,1 @@
-Cristiano Ronaldo (CR7)
+CR7
